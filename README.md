@@ -1,1 +1,0 @@
-# bernard-sh.github.io
